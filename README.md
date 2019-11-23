@@ -1,0 +1,2 @@
+# LGCoociFollowers_Juejin
+记录我在掘金平台上所有的粉丝，谢谢大家关注我
